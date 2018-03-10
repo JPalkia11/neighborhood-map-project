@@ -3,4 +3,4 @@ I haven't gone to a lot of places in my neighborhood, so I only listed the place
    Places:
    -Dunkin Donuts
    -Designs by Lee(A plant shop near my house)
-   -The Dojo(I haven't ever taken classes here, but it seems cool :))
+   -The Dojo *I haven't ever taken classes here, but it seems cool :)
